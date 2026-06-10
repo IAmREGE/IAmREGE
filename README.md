@@ -1,4 +1,3 @@
-Minecraft modding suspension until 2026-06-10T04:30:00.  
 Email (work): [junyu336699@sina.com](mailto:junyu336699@sina.com)
 <!---- 👋 Hi, I’m @IAmREGE
 - 👀 I’m interested in ...
